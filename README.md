@@ -5,6 +5,8 @@
 - 📫 anna.paruryan72@gmail.com
 - 💼 [LinkedIn](https://www.linkedin.com/in/anna-paruryan-b2455122b)
 
+💻 **Previous work & old projects:**  
+Check out my first GitHub account with previous projects: [anna-sahradyan](https://github.com/anna-sahradyan) 🐙
 <br/>
 
 ### Connect with me:
